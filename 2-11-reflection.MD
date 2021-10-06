@@ -30,3 +30,8 @@ Social media allows people to keep in touch when they can’t see each other rin
 
   As stated before, people have used smartwatches to cheat on tests and texts and notifications from smartwatches can distract students during class.
 
+
+Other 2.11 docs: 
+
+https://docs.google.com/document/d/1rzzTsDEnFEtJE_AkIHKIGPv1HxdCI4dmiwvTysugcmE/edit?usp=sharing 
+https://docs.google.com/document/d/18PEoSQSSmXULKmqwpu-LtukOH1ax6He5wLLR2qBgxmM/edit?usp=sharing
