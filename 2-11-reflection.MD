@@ -36,3 +36,7 @@ Other 2.11 docs:
 https://docs.google.com/document/d/1rzzTsDEnFEtJE_AkIHKIGPv1HxdCI4dmiwvTysugcmE/edit?usp=sharing 
 https://docs.google.com/document/d/18PEoSQSSmXULKmqwpu-LtukOH1ax6He5wLLR2qBgxmM/edit?usp=sharing
 https://docs.google.com/document/d/1aQ4Ih5sHrSusyMwi1WFm_8czw8MXCtd3Aks5Eufo8YU/edit?usp=sharing
+
+2.12:
+
+https://docs.google.com/document/d/1FJ9yZVS6OiRuQrpHduXfYqNbNZOlt3gVsBTzVJIEbPQ/edit?usp=sharing
